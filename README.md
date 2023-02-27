@@ -25,3 +25,7 @@
 
 ### Задание 3.
 
+![image](https://user-images.githubusercontent.com/122415129/221651294-0ab7aebc-5148-47d0-817f-1107dbf5cb02.png)
+
+![image](https://user-images.githubusercontent.com/122415129/221651363-13ee51ed-116d-44f0-abf9-50faa336d37b.png)
+
